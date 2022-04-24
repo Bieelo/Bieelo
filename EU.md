@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @Bieelo ou Gabriel Ferreira
+- ❤️ Gosto de Filmes, séries e vídeo games em geral
+- 🌱 Estou aprendendo HTML, CSS e Javascript na Plataforma DIO
+- 💫 Eu quero aprender mais, compreender mais, evoluir sempre. 
+- 📫 Meus contatos são: @GabrelxXD1223 (Gamertag xbox) ou @Gabriel82616720 (Twitter)
